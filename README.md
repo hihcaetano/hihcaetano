@@ -1,0 +1,6 @@
+- 👋 ola, sou @hihcaetano
+- 👀 estou interessada a desenvolver no javascript.
+- 🌱 atualmente estou aprendendo sobre Github.
+- 💞️ estou procurando a colaborar com as aulas de tecnologia. 
+- 😄 ela, elas 
+- ⚡ sou muita ansiosa 
